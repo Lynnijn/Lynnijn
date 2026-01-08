@@ -5,7 +5,7 @@
 <p align="left">
 </p>
 
-- 📫 Reach me **lynnerjh@gmail.com**
+- 📫 Reach me **janlexie@163.com**
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/linhan-liu-121468255/](https://www.linkedin.com/in/linhan-liu-121468255/)
 
